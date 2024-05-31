@@ -15,7 +15,7 @@
 
 - 📫 How to reach me **riteshdhapatepatil966@gmail.com**
 
-- ⚡ Fun fact **I am Funny**
+- 🌐 portfolio [https://ritesh-dhapate.vercel.app](https://ritesh-dhapate.vercel.app)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
