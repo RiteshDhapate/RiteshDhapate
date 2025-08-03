@@ -13,9 +13,9 @@
 
 - 💬 Ask me about **Android , MEARN**
 
-- 📫 How to reach me **riteshdhapatepatil966@gmail.com**
+- 📫 How to reach me **rieshdhapatepatil@gmail.com**
 
-- 🌐 portfolio [https://ritesh-dhapate.vercel.app](https://ritesh-dhapate.vercel.app)
+- 🌐 portfolio [wwww.dhapate.live](wwww.dhapate.live)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
